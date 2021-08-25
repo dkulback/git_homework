@@ -6,4 +6,8 @@
 # Two New Strategies
 1) Practicing calendaring and auditing how closely I was able to follow previous the week.
 
-2) Practice pseudocoding as much as possible 
+2) Practice pseudocoding as much as possible
+
+# Shoutout!
+
+My new neighbor, Mike Buckley!!! Thanks Mike! 
