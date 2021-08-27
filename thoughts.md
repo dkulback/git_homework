@@ -11,5 +11,3 @@
 # Shoutout!
 
 My new neighbor, Mike Buckley!!! Thanks Mike!
-
-New thoughts
